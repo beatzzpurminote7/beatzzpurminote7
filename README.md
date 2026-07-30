@@ -1,4 +1,6 @@
 <p align="center">
+спросите, перед тем, как брать идею | ask 4 take inspo pleaze :(
+<p align="center">
 <img src="https://media.tenor.com/xceCcBrb-xoAAAAi/headpats-two-time.gif" width="300" height="300"</p> <p align="center"> ASPEN 
  <p align="center">  
    <a href="https://sleepstab7.straw.page" target="_blank">STRAWP</a> || <a href="https://t.me/goresinfo7" target="_blank">TG INFO</a> || <a href="https://t.me/gore7y" target="_blank">ART!&&!(tg too)</a> 
