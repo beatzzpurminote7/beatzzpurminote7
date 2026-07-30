@@ -1,5 +1,5 @@
 <p align="center">
-спросите, перед тем, как брать идею | ask 4 take inspo pleaze :(
+спросите, перед тем, как брать идею | ask 4 take insp pleaze :(
 <p align="center">
 <img src="https://media.tenor.com/xceCcBrb-xoAAAAi/headpats-two-time.gif" width="300" height="300"</p> <p align="center"> ASPEN 
  <p align="center">  
