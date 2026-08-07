@@ -1,5 +1,5 @@
  <p align="center">  
-   <a href="https://sleepstab7.straw.page" target="_blank">STRAWP</a> || <a href="https://t.me/goresinfo7" target="_blank">TG INFO</a> ||
+   <a href="https://sleepstab7.straw.page" target="_blank">STRAWP</a> || <a href="https://t.me/gorezinfo" target="_blank">TG INFO</a> ||
    <p align="center">
    <img src="https://komarev.com/ghpvc/?username=beatzzpurminote7&style=for-the-badge&color=7f00fe&label=HUH" alt="Visitor Count" />
    <p align="center">
